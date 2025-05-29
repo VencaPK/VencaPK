@@ -28,5 +28,5 @@ Věřím v sílu spojení digitální a fyzické reality. Proto stavím své pro
 
 ---
 
-> 🚀🛠️ **Inovace odlišuje vůdce od následovníka.**
+> 🚀🛠️ **Největší inovace vznikají tam, kde odvaha překoná hranice – a promění vizi ve skutečnost.**
 
